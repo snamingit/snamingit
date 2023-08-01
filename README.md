@@ -7,4 +7,4 @@
 - :house: Based in Seattle, WA :evergreen_tree:
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: Found myself in a lot of Dahlia and Hosta-grower groups in social media. 
-
+-->
